@@ -4,13 +4,13 @@
 
 🔭 Linedlin is my facebook.
 
-📫🧧 How to reach me: parmarjatin4911@gmail.com
+📫🧧 How to reach me: @parmarjatin4911@gmail.com
 
 ⚡ Fun fact: only work at night.😁
 
-🖥 I intrest in Computer Science.
+🖥 I intrest in Computer Science @ Latest Techlogy Researching.
 
-🛰 I Hobby Computer Coding Testing And Research.
+🛰 I Hobby Computer Science Testing,Research And Journey.
 
 ⌨ I Currently Learning ML.@ Data Scince
 
