@@ -4,7 +4,7 @@
 
 🔭 Linedlin is my facebook.
 
-📫🧧🔗 How to reach me: @parmarjatin4911@gmail.com
+📫🧧🔗 How to reach me: parmarjatin4911@gmail.com
 
 ⚡ Fun fact: only work at night.😁
 
