@@ -8,7 +8,7 @@
 
 ⚡ Fun fact: only work at night.😁
 
-🖥 I intrest in Computer Science @ Latest Techlogy Researching,Hardware.
+🖥 I interest in Computer Science @ Latest Techlogy Researching,Hardware,Networking.
 
 🛰 I Hobby Computer Science Testing,Research And Journey.
 
